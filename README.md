@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Albin6453
+- 👀 I’m interested in Programming and Math.
+- 🌱 I’m currently learning how to Program and develop games.
+- 💞️ I’m looking to collaborate on nothing currently
+- 📫 How to reach me? No way currently.
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I like pancakes
